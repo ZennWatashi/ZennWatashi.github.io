@@ -1,7 +1,7 @@
 # ZennWatashi.github.io
 Christian Monnino V.Victoria
 
-Best JDM car's (My own Opinion)
+2 Best JDM Car(My own Opinion)
 
 1st Toyota Supra Mk4.
 ![Picture of Toyota Supra](![image](https://github.com/ZennWatashi/ZennWatashi.github.io/assets/152352625/53822b25-53d0-4f64-8d95-f07f89ac6933)
@@ -21,8 +21,3 @@ The R34 Skyline GT-R was introduced in 1998, and was available from 1998 to 2002
 
 3rd Mazda Rx7.
 
-![Picture of Mazda Rx7]
-
-[Mazda Rx7 Edit](https://youtu.be/MHPCM2sqbOM?si=pcBpISOeJtSBD88y)
-
-Launched in 1978, the Mazda RX-7 was Mazda's first mass-market sports car and would go on to become the best-selling rotary powered vehicle in history. And it also propelled the brand's success on the race track to unprecedented levels.
